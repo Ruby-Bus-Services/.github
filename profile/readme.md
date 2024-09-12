@@ -4,3 +4,4 @@
 
 Hello from Ruby Bus Services! "Engaging Minds, Shaping Leaders!" Contact us at support@rubyservices.info, or message the owner at unknownyt@rubyservices.info! We look forward to having you within this company!
 Website: https://www.rubyservices.info
+Roblox: https://roblox.rubyservices.info | Discord: https://discord.rubyservices.info | X (Twitter): https://x.rubyservices.info (Could be - https://twitter.rubyservices.info)
